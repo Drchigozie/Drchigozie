@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Drchigozie, a research assistant with experience in using SPSS for data analysis.
+- 👀 I’m interested in anything research
+- 🌱 I’m currently learning Python
+- 📫 How to reach me email: favour4realmercy@gmail.com
